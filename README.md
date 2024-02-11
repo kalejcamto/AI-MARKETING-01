@@ -40,9 +40,12 @@ TikTok (no account and no results)
 .
 .
 .
+SEARCH ENGINGE OPTIMIZATION RECOMMENDATIONS: https://www.semrush.com/
 
-
-
+![image](https://github.com/kalejcamto/AI-MARKETING-01/assets/101201140/8ef65aa7-8c3e-4081-8eeb-9b8fbeaf63b9)
+![image](https://github.com/kalejcamto/AI-MARKETING-01/assets/101201140/1dee2ff5-c80a-4bcc-aea8-a4a8d3d278bc)
+![image](https://github.com/kalejcamto/AI-MARKETING-01/assets/101201140/0a371ab5-87e6-4365-abf6-43ba88e5767d)
+![image](https://github.com/kalejcamto/AI-MARKETING-01/assets/101201140/140f1934-f657-4b33-aa81-a6fd3f023981)
 
 
 
