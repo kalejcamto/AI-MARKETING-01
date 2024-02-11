@@ -5,7 +5,7 @@ This Freelancing project is my initiave towards creating my business model of me
 I would love to help local businesses or startups to thrive in the AI era and keep being a supporting pillar for the community and the local economy. I leveraged Stakeholder relationships, sales techniques, personal branding, customer service, technical knowledge of AI tools, tech knowledge of Marketing Campaigns performances, Search Engine Optimization (SEO).
 I presented a brandnew personalized marketing idea to my client and he loved it. We started today as of 02/10/2024. 
 
-This is how his only social media page looks right now.
+This is how his only social media page looks right now, (Before we start the new AI PHOTO MARKETING project)
 
 ![image](https://github.com/kalejcamto/AI-MARKETING-01/assets/101201140/a521c9f4-bfb4-48fe-8b42-20a2b18a2e4f)
 
